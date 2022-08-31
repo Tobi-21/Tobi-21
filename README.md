@@ -1,4 +1,8 @@
--  Hi, I’m Tobi-21
+-  Hi, I’m Hoang Thien/programer
+-  my nickname is tobi-21
+-  Im Sixteen years old 
+-  game : pubg
+-  crush : (Q)
 
 <!---
 Tobi-21/Tobi-21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
