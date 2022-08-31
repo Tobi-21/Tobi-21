@@ -1,6 +1,6 @@
 -  Hi, I’m Hoang Thien/programer
 -  my nickname is tobi-21
--  Im Sixteen years old 
+-  I'm sixteen years old ...
 -  game : pubg
 -  crush : (Q)
 
