@@ -1,4 +1,5 @@
 -  Hi, I’m Hoang Thien/programer
+-  9/11/2006
 -  my nickname is tobi-21/laohac
 -  I'm sixteen years old ...
 -  game : pubg
